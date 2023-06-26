@@ -4,9 +4,12 @@ Testing the history in git llalalala :3
 
 no entiendo que pasa
 
-make the mistakes :3
 
-chocorramito
+making more mistakes :# 
+
+
+do not make the mistaik
+
 
 
 
